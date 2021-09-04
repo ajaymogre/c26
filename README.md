@@ -1,0 +1,2 @@
+a south Indian pancake made form finely ground rice and lentils. It is sometimes stuffed with spiced vegetables and is usually eaten with chutney
+चावल और दाल के सम्मिश्रण से बना एक दक्षिण भारतीय व्यंजन जो चटनी के साथ परासा जाता है। इसमें मसालेदार सब्ज़ी भी भरी जा सकती है, डोसा, इसे चटनी के साथ परोसा जाता है
